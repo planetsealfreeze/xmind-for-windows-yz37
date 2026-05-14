@@ -1,4 +1,4 @@
-# 
+# XMind for Windows instant Script: real-time-sync & templates offers the most advanced XMind for Windows script, with real-time-sync and templates. Ideal for Windows professionals.
 
 
 
